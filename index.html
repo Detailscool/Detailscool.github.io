@@ -1,0 +1,1 @@
+# detailscool.github.io
